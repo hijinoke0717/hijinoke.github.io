@@ -1,1 +1,0 @@
-# hijinoke.github.io
